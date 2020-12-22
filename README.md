@@ -9,4 +9,4 @@ I am not a programmer (yet), and basically, I don't even know how to build a pro
 But I'm willing to do what it takes.
 
 Will appreciate any advice, critic or new ideas.
-Give me your opinion - I know you have one.
+Give me your opinion - I know you have one!
